@@ -4,6 +4,8 @@
 
 ------
 
+"When I'm examining a crime scene," Duncan exuberated, "I like to soak in every detail. Anything that is out of the ordinary, every contradiction, every nuance a clue!" Little Danny, a boy of six, sat eagerly listening to his uncle. It was the first time his uncle had been to visit in nearly a month. "But you see Danny, it only matters what you can detect; people say things - a lot of things. But it's the detective's duty to determine the truth! Oh Danny, nothing matters but the truth! Take nothing for granted. Trust your gut. Trust what you see!"
+
 "Oh Duncan, you mustn't worry Danny with such things, he's just a boy!" his sister Kathryn interrupted, hugging Danny from behind. Kathryn kept a neat house. The house was two stories tall with a stairway near the entrance. Duncan and Danny were seated in the den near the back of the house, opposite the entrance. Kathryn choose this house for multiple reasons, but mainly for the housing association that sold it - Bay Realty - the owner, Jean, was a close childhood friend of Kathryn's, and ran a tight exchange.
 
 "Oh honey, he must learn sooner or later!" Daniel said, reclaiming his wife from his suffocating child. "I for one, think this detective's work is fascinating." He said with a wink.
