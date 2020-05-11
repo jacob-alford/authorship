@@ -1,5 +1,7 @@
 # A Shadow at Dawn
 
+## Chapter 0
+
 ### May 13, 2019
 
 ------

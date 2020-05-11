@@ -1,5 +1,7 @@
 # Before the Storm
 
+## Chapter 3
+
 ### June 8, 2019
 
 ***

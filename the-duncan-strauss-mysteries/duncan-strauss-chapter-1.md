@@ -1,5 +1,7 @@
 # Duncan Strauss
 
+## Chapter 1
+
 ### May 14, 2019
 
 ------

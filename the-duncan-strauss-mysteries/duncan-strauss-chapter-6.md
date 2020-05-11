@@ -1,5 +1,7 @@
 # The Next Horizon
 
+## Chapter 6
+
 ### January 1, 2020
 
 ***
