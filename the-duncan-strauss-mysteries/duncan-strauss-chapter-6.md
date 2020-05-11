@@ -478,4 +478,4 @@ The van bumped along without any further comment from the guard.
 
 Daniel stared down at his feet.  The metal grate bore studs, shallow in depth but pushed against the sole of his shoe, likely for friction against the smooth surface.  He glanced at the guard stationed beside him, and noticed something peculiar.  The guard’s boot bore a medallion.  It depicted a circular olive branch surrounding several silhouetted people clustered in the center. 
 
-[Chapter 5 &larr;](/posts/view/dunc6)
+[Chapter 5 &larr;](/posts/duncan-strauss-chapter-5)

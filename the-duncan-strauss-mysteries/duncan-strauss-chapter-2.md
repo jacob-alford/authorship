@@ -4,7 +4,7 @@
 
 ### May 17, 2019
 
-****
+---
 
 The train hit a bump and Duncan was jolted awake. He glanced around. "A train?" he thought. The last train to be used, as he recalled, was before - and during - the war. The war was perhaps the most bittersweet moment in human history. Human suffering, at least a vast majority of it, ended alongside the conflict, and alongside an estimated 4.6 billion human lives. Though Duncan had forgotten most of it, like most of history class, that number - 4.6 - he had never forgotten.
 
@@ -30,7 +30,7 @@ Duncan woke again, but something was off. He didn't hear any conversations, no l
 
 "Bad dream?" There was a naked woman in front of him, getting dressed. He sighed, and laid back down. "You want us to charge the account like usual?" Duncan nodded. The girl tiptoed out of the room. Duncan turned on his side, closing his eyes.
 
-***
+---
 
 Kathryn turned the burger over. She always hated how appealing burgers were. She hated how much she loved them. But she decided that some occasions were cause for intemperance; she pressed the spatula down on the burger - grease flooded the grill and made a satisfying sssssssssizzle.
 
@@ -120,7 +120,7 @@ Danny handed the processor to his mom. "Mom, why can't Duncan visit more?"
 
 "I'll tend the burgers while your gone," Daniel said kissing Kathryn.
 
-***
+---
 
 Kathryn spent some time choosing which ice cream to buy. She wanted to balance the size of the container and the price. Fortunately, there was no shortage of options. She ended up choosing the one that looked the healthiest, though it certainly wasn't. She headed for the front, but something was amiss. Everybody was standing still, everybody was silent. Standing on her tippy toes, she caught a glimpse of something she wished she hadn't. Before her stood three men dressed in black with what appeared to be bags of white powder strapped to their chests. Her heart jumped. She turned around and hid behind an aisle. Fumbling in her pocket, she grasped at her processor. She yanked it out, lowered the volume, and called the only person she could think of.
 
@@ -166,6 +166,6 @@ But Duncan didn't reach the front. As there wasn't a front to be reached. Duncan
 
 At home, Daniel heard the blast and quickly dialed Kathryn. There was no answer. This Peace Day was all too broken.
 
-[Chapter 1 &larr;](/posts/view/dunc2)
+[Chapter 1 &larr;](/posts/duncan-strauss-chapter-1)
 
-[Chapter 3 &rarr;](/posts/view/dunc4)
+[Chapter 3 &rarr;](/posts/duncan-strauss-chapter-3)

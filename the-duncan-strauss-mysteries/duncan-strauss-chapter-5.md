@@ -500,6 +500,6 @@ The person nodded, the ice clinking in the glass he held.  "By tomorrow evening.
 
 "Yes sir."  He turned and left.
 
-[Chapter 4 &larr;](/posts/view/dunc5)
+[Chapter 4 &larr;](/posts/duncan-strauss-chapter-4)
 
-[Chapter 6 &rarr;](/posts/view/dunc7)
+[Chapter 6 &rarr;](/posts/duncan-strauss-chapter-6)

@@ -20,4 +20,4 @@ Although this is the pinnacle of the experience, he enjoyed the effect alone. Th
 
 He stepped outside, fresh. He glanced at the horizon. The light was just peaking up over the blue ridge of the Cantors. A crimson sunrise.
 
-[Chapter 1 &rarr;](/posts/view/dunc2)
+[Chapter 1 &rarr;](/posts/duncan-strauss-chapter-1)

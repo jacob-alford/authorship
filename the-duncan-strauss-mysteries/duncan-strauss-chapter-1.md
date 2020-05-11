@@ -156,6 +156,6 @@ Daniel seemed notably more alert, "What is it?"
 
 "You wouldn't happen to know anybody by the name of Cane Blithes?"
 
-[Chapter 0 &larr;](/posts/view/dunc1)
+[Chapter 0 &larr;](/posts/duncan-strauss-chapter-0)
 
-[Chapter 2 &rarr;](/posts/view/dunc3)
+[Chapter 2 &rarr;](/posts/duncan-strauss-chapter-2)

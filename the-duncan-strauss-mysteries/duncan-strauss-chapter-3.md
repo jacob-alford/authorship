@@ -166,6 +166,6 @@ Duncan awoke to his processor buzzing, he answered, "Kathryn?"
 
 "I'm okay, didn't sleep too well last night," he answered.
 
-[Chapter 2 &larr;](/posts/view/dunc3)
+[Chapter 2 &larr;](/posts/duncan-strauss-chapter-2)
 
-[Chapter 4 &rarr;](/posts/view/dunc5)
+[Chapter 4 &rarr;](/posts/duncan-strauss-chapter-4)

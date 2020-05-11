@@ -272,6 +272,6 @@ Duncan lurched forward from a deep slumber feeling the weight of something attac
 
 "Kathryn"
 
-[Chapter 3 &larr;](/posts/view/dunc4)
+[Chapter 3 &larr;](/posts/duncan-strauss-chapter-3)
 
-[Chapter 5 &rarr;](/posts/view/dunc6)
+[Chapter 5 &rarr;](/posts/duncan-strauss-chapter-5)
